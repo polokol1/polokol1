@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...zcx
 - 😄 Pronouns: ...59sdf
-- ⚡ Fun fact: ...454656
+- ⚡ Fun fact: ...454656l.jk
 652
   456fghwer
 <!---fgm
