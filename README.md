@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @polokol1
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...87152
+- 💞️ I’m looking to collaborate on ...871526363
 - 📫 How to reach me ...zcxasd623xcvvcx
 - 😄 Pronouns: ...59sdf543sdf4343
 - ⚡ Fun fact: ...454656l.jk87
