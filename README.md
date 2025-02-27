@@ -7,6 +7,6 @@ fhg- 👋 Hi, I’m @polokol1
 - ⚡ Fun fact: ...454656l.jk8741dfgre
 652sdf549669
   456fghwer544554o;i21fefe
-polokol1/polokol1 is a ✨ special ✨ repository b55ecause its `README.md` (this file) appears on your GitHub profile.qrwqw56156xcvxcdsdc
+polokol1/polokol1 is a ✨ special ✨ repository b55ecause its `README.md` (this file) appears on your GitHusfdb profile.qrwqw56156xcvxcdsdc
 You can click the Preview link to take a look at your changes.26
 --->fsd
