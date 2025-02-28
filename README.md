@@ -5,7 +5,7 @@ fhg- 👋 Hi, I’m @polokol1
 - 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregt
 - 😄 Pronouns: ...59sdf543sdf4343mn,26669+6srg
 - ⚡ Fun fact: ...454656l.jk8741dfgre
-652sdf549669
+652sdf549669gerrge
   456fghwer544554o;i21fefe
 polokol1/polokol1 is a ✨ special ✨ repository b55ecause its `README.md` (this file) appears on your GitHusfdb profile.qrwqw56156xcvxcdsdc
 You can click the Preview link to take a look at your changes.26
