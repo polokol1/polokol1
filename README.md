@@ -1,6 +1,6 @@
 sdffhg- 👋 Hi, I’m @polokol1
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...cxvcxv
 - 💞️ I’m looking to collaborate on ...871526363563635645fdsfd
 - 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregt
 - 😄 Pronouns: ...59sdf543sdf4343mn,26669+6srg
