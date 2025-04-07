@@ -1,7 +1,7 @@
 reyrdsssdffhg- 👋 Hi, I’m @polokol1
 - 👀 I’m interested in ...36ng
 - 🌱 I’m currently learning ...cxvcxv
-- 💞️ I’m looking to collaborate on ...871526363563635645fdsfd
+- 💞️ I’m looking to collaborate on ...871526363563635645fdsfddssds
 - 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregtdsdssdaasxzc
 - 😄 Pronouns: ...59sdf543sdf4343mn,26669+erg365696bmn
 - ⚡ Fun fact: ...454656l.jk8741dfgre589
