@@ -1,4 +1,4 @@
-reyrdsssdffhg- 👋 Hi, I’m @polokol1
+dfvbdfdfbreyrdsssdffhg- 👋 Hi, I’m @polokol1
 - 👀 I’m interested in ...36ng
 - 🌱 I’m currently learning ...cxvcxv
 - 💞️ I’m looking to collaborate on ...871526363563635645fdsfddssds
