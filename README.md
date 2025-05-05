@@ -1,5 +1,5 @@
 dfvbdfdfbreyrdsssdffhg- 👋 Hi, I’m @polokol1
-- 👀 I’m interested in ...36ng
+- 👀 I’m interested in ...36ngfdsx
 - 🌱 I’m currently learning ...cxvcxv
 - 💞️ I’m looking to collaborate on ...871526363563635645fdsfddssds856+rgereg
 - 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregtdsdssdaasxzcxcvhghndrgrdftrhrthtrrhtyhth
