@@ -1,8 +1,8 @@
-atdfvbdfdfbreyrdsssdffhg- 👋 Hi, I’m @polokol1
-- 👀 I’m interested in ...36ngfdsxkhhkjhkhkj
+9atdfvbdfdfbreyrdsssdffhg- 👋 Hi, I’m @polokol1
+- 👀 I’m interested in ...36ngfdsxkhhkjhkhkj96333
 - 🌱 I’m currently learning ...cxvcxvetrrtett
 - 💞️ I’m looking to collaborate on ...871526363563635645fdsfddssds856+rgereghghg23232egrgeregret
-- 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregtdsdssdaasxzcxcvhghndrgrdftrhrthtrrhtyhthfeffewfew
+- 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregtdsdssdaasxzcxcvhghndrgrdftrhrthtrrhtyhthfeffewfew9
 - 😄 Pronouns: ...59sdf543sdf4343mn,26669+erg365696bmnhtedf85885fdsfgfggf
 - ⚡ Fun fact: ...454656l.jk8741dfgre589etrtessddssegrergfdxdsaxsdsxd
 652sdf549669gerrgefhgv3rewewewdgffetrdgfddfsdffdsfghgfdgfgddf
