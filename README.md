@@ -1,6 +1,6 @@
 vxcxvcvcx9atdfvbdfdfbreyrdsssdffhg- 👋 Hi, I’m @polokol1
-- 👀 I’m interested in ...36ngfdsxkhhkjhkhkj96333
-- 🌱 I’m currently learning ...cxvcxvetrrtett
+- 👀 I’m interested in ...36ngfdsxkhhkjhkhkj9633386878
+- 🌱 I’m currently learning ...cxvcxvetrrtett876444
 - 💞️ I’m looking to collaborate on ...871526363563635645fdsfddssds856+rgereghghg23232egrgeregret
 - 📫 How to reach me ...zcxasd623xcvvcx4115hryxcv84847ghnregtdsdssdaasxzcxcvhghndrgrdftrhrthtrrhtyhthfeffewfew9
 - 😄 Pronouns: ...59sdf543sdf4343mn,26669+erg365696bmnhtedf85885fdsfgfggf
